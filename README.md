@@ -1,1 +1,1 @@
-# 304_OSWD_Prectical_Assignment-2
+# 304_OSWD_Practical_Assignment-2
